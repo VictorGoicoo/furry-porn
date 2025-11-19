@@ -18,14 +18,6 @@ I love it when I receive his BBC
 See upcoming rap shows
 Get tickets for your favorite artists
 
-You might also like
-Nobody Gets Me
-SZA
-Did you know that there’s a tunnel under Ocean Blvd
-Lana Del Rey
-Ghost in the Machine
-SZA
-
 [Chorus]
 Three big balls, look like we playin' tennis
 He got a big dick, I think his name Dennis
